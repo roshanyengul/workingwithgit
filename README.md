@@ -1,3 +1,7 @@
-# GIT Worskshop Roshan 
+# GIT Worskshop Roshan Maneesh DharamRaj
 
-This is my firts GIT
+This is my first GIT
+
+wwhooooaaaaaa   hhuuuuuuurraaahhh
+
+Ganapati Bappa Moryaa...
